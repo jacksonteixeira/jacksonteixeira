@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing at this moment
 - 📫 You could reach me here
 
-✨ That's it
+✨ This is my second profile. *I created it to store my frozen side projects*.
